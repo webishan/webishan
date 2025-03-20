@@ -1,4 +1,4 @@
-![WordPress Developer | Web Designer & Developer | Data Scientist | ](https://media.licdn.com/dms/image/C4E16AQFDJh9MkiYtvw/profile-displaybackgroundimage-shrink_350_1400/0/1611223325770?e=1703116800&v=beta&t=4zd6OqEr_u3QTZb_zgax8BQAF1sy_DX-XkZR7Rh_mLQ)
+![WordPress Developer | Web Designer & Developer | Data Science Enthusiast | ](https://media.licdn.com/dms/image/C4E16AQFDJh9MkiYtvw/profile-displaybackgroundimage-shrink_350_1400/0/1611223325770?e=1703116800&v=beta&t=4zd6OqEr_u3QTZb_zgax8BQAF1sy_DX-XkZR7Rh_mLQ)
 ### Hi there 👋, I'm Ishan Khan
 #### WordPress Developer | Web Designer & Developer | Data Scientist | 
 
